@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @1Bit1Byte
+- YouTube: www.youtube.com/channel/UCgHb2DAZuEDtWK2OVvWm8Jg
+- Discord: 1BitByte#1138
